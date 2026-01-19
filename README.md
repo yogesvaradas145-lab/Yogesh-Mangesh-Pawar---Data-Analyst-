@@ -4,6 +4,8 @@ yogesvaradas145@gmail.com
 www.linkedin.com/in/yogesh
 pawar-33065b166 (LinkedIn)
 
+About Me : I am a seasoned professional with 15 years of diverse experience across healthcare administration and corporate functions. Currently serving as an Assistant Manager – Patient Care Services in a hospital setting, I bring proven expertise in people management, warehouse and supply chain operations, and data analytics. Skilled in transforming complex datasets into clear, actionable reports, I specialize in delivering insights that support decision-making and improve operational efficiency. My career reflects a strong ability to manage teams, streamline workflows, and bridge technical analysis with practical business outcomes.
+
 Top Skills
 Data Analysis
 Stocks, Adminastration work, order
