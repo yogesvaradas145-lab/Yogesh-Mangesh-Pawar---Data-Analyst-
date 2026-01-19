@@ -45,6 +45,7 @@ Hospital Staff / AKD / Palliative Care Volunteers.
 ● Responsible to take care of all international and nation VIP guest comes
 to our hospital. managing their health checkups and coordinating for the
 accommodation, consultations etc.
+
 Tata Memorial Centre
 Administrative Assistant
 October 2020 - March 2021 (6 months)
@@ -66,6 +67,7 @@ donating the funds.
 * Helping the patient by giving them proper guidance and assigning patient
 navigator for them who can counsel the patient (Financial, emotional,
 spiritually, palliative care etc.).
+
 Amphi Analytic
 Project Professional -  Taxation & SCM
 May 2017 - May 2020 (3 years 1 month)
@@ -102,6 +104,7 @@ Encourage knowledge-sharing sessions to keep the team updated on tax law
 changes.
 Drive process improvements that enhance compliance, reduce risk, and
 empower the team
+
 The Bhaktivedanta Book Trust
 Assistant Warehouse Manager
 April 2011 - October 2016 (5 years 7 months)
