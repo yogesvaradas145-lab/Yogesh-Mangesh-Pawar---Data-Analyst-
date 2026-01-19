@@ -3,11 +3,13 @@ Contact
 yogesvaradas145@gmail.com
 www.linkedin.com/in/yogesh
 pawar-33065b166 (LinkedIn)
+
 Top Skills
 Data Analysis
 Stocks, Adminastration work, order
 management ,People Managment 
 Yogesh Pawar
+
 Assistant Manager - Pateint Care services
 Maharashtra, India
 Experience
